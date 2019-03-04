@@ -6,7 +6,7 @@
 1. Ketuhanan yang maha esa
 1. Kemanusiaan yang adil dan beradab
 1. Persatuan Indonesia
-1. Keryakyatan yang dipimpin oleh hikmat kebijaksanaan dalam permusyawaratan / peradilan
+1. Kerakyatan yang dipimpin oleh hikmat kebijaksanaan dalam permusyawaratan / peradilan
 1. Keadilan sosial bagi seluruh rakyat Indonesia
 
 - Lorem ipsum dolor sit, 
